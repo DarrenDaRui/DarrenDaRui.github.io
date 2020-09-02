@@ -1,3 +1,3 @@
 # DarrenDaRui.github.io
 
-# Hi All, it's nwe world
+# Hi All, it's new world
